@@ -1,1 +1,1 @@
-[![GPT3.png](https://i.postimg.cc/vZGV75mk/GPT3.png)](https://postimg.cc/zVPv8bKF)
+![1](https://github.com/aamotta0/React_GPT3/assets/144195828/860a87c3-20d7-41df-b368-05f51c9f9484)
